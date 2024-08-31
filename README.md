@@ -1,2 +1,0 @@
-# Josuee
-mi primera vez 
